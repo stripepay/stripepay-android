@@ -1,1 +1,0 @@
-# stripepay.github.io
